@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @coolkarnicodes
-- 👀 I’m interested in reading books and learn programming
+- 👀 I’m interested in reading books and to learn programming
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on new projects
 - 📫 How to reach me: insta handle coolkarni_writes
